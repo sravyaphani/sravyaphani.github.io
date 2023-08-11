@@ -9,8 +9,7 @@ Masters in Physics
 #### Sidhartha College - India.
 Bachelor of Science
 Postgraduate course - Data Analytics for Business Decisions Making (Jan 2023- August 2022) 
-#### Sir M. Visvesvaraya Institute of Technology, India
-BE in CSE ( 2015 - 2019)
+
 
 ## Work Experience
 
